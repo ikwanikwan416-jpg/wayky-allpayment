@@ -1,0 +1,1 @@
+# wayky-allpayment
